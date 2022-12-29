@@ -11,4 +11,4 @@
   
 </details>
 
-With the divine grace of the almighty, inviting you and your family to Gauri & Amar's wedding to be held on 23 JANUARY 2023, AT SHUKLA GARDEN MALGODAM RD, SHANTI NAGAR, ETAH, UTTAR PRADESH 207002.
+With the divine grace of the almighty, inviting you and your family to Amar & Gauri's wedding to be held on 23 JANUARY 2023, AT SHUKLA GARDEN MALGODAM RD, SHANTI NAGAR, ETAH, UTTAR PRADESH 207002.
